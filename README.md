@@ -1,2 +1,2 @@
 # projectK_2025_1001
-about the project details here soon.
+about the project details here soon ok.
